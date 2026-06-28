@@ -1,1 +1,0 @@
-statistics master degree
